@@ -10,3 +10,4 @@ This is easy to make and super flavourful, it makes a wonderful 5 mins healthy h
 5. Add the almond butter, tamar, maple syrup, chinese 5 spice and water to a bowl and mix well. Taste and adjust to your palette.
 6. To serve, spread a generous amount of the spiced almond butter on each of the slices of bread, add the slices of avocados, the sauerkraut, the tofu, the wilted greens, some pickled carrots or pickled onions to assemble. Cut in half and devour!!
 7. Extra ingredient
+8. extra ingredient 2
